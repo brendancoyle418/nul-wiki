@@ -1,1 +1,0 @@
-See [[Shogunate of Arcana]] for Geography

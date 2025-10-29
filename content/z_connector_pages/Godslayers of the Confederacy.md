@@ -1,1 +1,0 @@
-See [[i. Godslayers of the Confederacy]]

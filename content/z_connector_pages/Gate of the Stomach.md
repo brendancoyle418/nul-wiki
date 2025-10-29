@@ -1,1 +1,0 @@
-See [[vi. Gate of the Stomach]]

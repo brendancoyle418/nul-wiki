@@ -29,7 +29,7 @@ Located in the southwestern frontier near the volcanic borders of **[[The Reach]
 
 ---
 
-### **[[Tower of Clay]]**
+### **[[main/1. Locations/Confederacy of the Slayers/Shogunate of Arcana/Tower of Clay]]**
 Found in the south-central basin. The land surrounding the tower is composed of soft, malleable stone that reshapes itself slowly with weather and vibration. The air carries the scent of dust and ozone. This region serves as one of the main calibration hubs for the **Mass Mind**, grounding psionic feedback that builds up across the continent.
 
 ---

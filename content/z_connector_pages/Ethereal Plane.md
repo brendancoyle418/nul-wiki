@@ -1,1 +1,0 @@
-See [[iv. Ethereal Plane]]

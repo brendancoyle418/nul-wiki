@@ -1,3 +1,6 @@
+---
+publish: true
+---
 **The Catalytic Spheres** are six massive orbs suspended above the **[[Big Fucking Pit]]**, each regulating a core system of reality across the **[[Mortal Plane]]**. They appeared in **Year 10**, following the disappearance of the **[[Shogunate of Nature]]** during the **[[Planetary Ascension]]**, and have remained in perfect orbit ever since. Their arrangement defines the balance of energy, matter, and time, ensuring the world remains stable after the **[[Sealing]]**.
 
 Each Sphere sustains a fundamental property of existence—light, energy, matter, balance, time, and nullification. Together, they keep the sealed world from collapsing in on itself. The Spheres are monitored from fortified bases built by each **[[Shogunate]]** along the Pit’s descending walls, where resonance levels are strongest.

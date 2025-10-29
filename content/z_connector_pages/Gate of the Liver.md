@@ -1,1 +1,0 @@
-See [[i. Gate of the Liver]]
