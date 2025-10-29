@@ -1,0 +1,5 @@
+**Devilstone** is a vast pit located in the **[[Shogunate of Religion]]**, southeast of the **[[Lighthouse]]** and across the highlands from **[[Angelstone]]**. The chasm spirals downward through layers of black stone and glowing veins of red crystal. Steam rises constantly from its depths, carrying the scent of sulfur and ash. Bridges of chain and stone once crossed the upper rim, but most have collapsed, leaving only narrow walkways and carved ledges along the descent.
+
+The pit serves as the Shogunate’s place of execution and exile. Criminals, heretics, and those judged beyond redemption are thrown into its depths, where they are believed to transform into devils. The walls are etched with the shapes of faces and hands pressed into the rock, and faint cries echo from far below. Many claim that the condemned continue to speak through the pit’s wind, warning those who linger too close to the edge.
+
+Rituals of judgment are still held at the rim of Devilstone. Priests light braziers and read the names of the condemned before casting them down. The smoke from these fires drifts into the pit and never returns.

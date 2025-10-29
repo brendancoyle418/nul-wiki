@@ -1,0 +1,9 @@
+**Queenswood Dominion** is a coastal forest city on the eastern edge of the **[[Godswood Triumvirate]]**, built along steep ridges that slope down toward the sea. The land is covered in tall, narrow **[[Queenwood Trees]]** with silver thorns that catch the faint light of the forest. The soil is thin and pale, and the cliffs are made of amber and petrified wood. Mist rolls in from the water and hangs low through the trees, giving the entire city a faint silver haze.
+
+The city is built upward instead of outward. Platforms and longhouses wrap around the trees, forming stacked towers that climb toward the canopy. Rope bridges and narrow walkways link each platform across the ridges, and the older levels are often buried beneath new layers of construction. The buildings use a mix of polished amber and pale wood taken from the forest floor.
+
+Amber veins run through the cliffs and hills, glowing faintly beneath the surface. Many of these deposits contain preserved figures or artifacts from earlier generations. The lower cliffs are marked with long rows of amber chambers carved directly into the rock, their walls smooth and transparent. Resin pools gather at the base of these cliffs, feeding the smaller streams that flow into the sea.
+
+The coastline below the Dominion is sharp and uneven. The water is shallow, filled with pieces of broken resin and fallen thorns that glimmer in the light from the forest. The air smells of salt and sap, and the sound of the waves carries through the trees.
+
+The **Queenswood Dominion** is quiet and vertical. Every level of the city rises from the forest itself, built around the trunks and cliffs that support it. The forest canopy blocks the sky, and the sea is hidden by mist, leaving only the sound of the wind and the faint glow of amber to mark the city’s edge.

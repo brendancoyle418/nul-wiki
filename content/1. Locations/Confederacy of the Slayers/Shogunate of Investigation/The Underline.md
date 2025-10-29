@@ -1,0 +1,9 @@
+**The Underline** is a major subterranean route within the **[[Shogunate of Investigation]]**, running beneath the western continents and connecting the **[[Shogunate of Arcana]]**, the **[[Shogunate of Religion]]**, and the **[[Shogunate of History]]**. It serves as the primary corridor for transport, communication, and covert travel across the Confederacy.
+
+The tunnel follows a gradual downward slope beneath layers of basalt and mineral crust, stretching for hundreds of miles below the ocean floor. Its walls are smooth and dark, shaped by both excavation and natural fault lines. Condensation drips constantly from the ceiling, feeding thin streams that run along the floor and disappear into side shafts. The air is cold and heavy, carrying a faint metallic echo that makes direction difficult to judge.
+
+Sections of the Underline are reinforced with iron and resin to withstand pressure and shifting stone. Other areas remain natural, marked only by carved symbols or the faint glow of mineral veins. The tunnel widens at several points into junction chambers used for rest and maintenance, though most have been abandoned or partially flooded.
+
+Due to its scale, the Underline is rarely patrolled or fully mapped. Parts of it have collapsed into the deep crust, while others have merged with older caverns or the lower branches of the **[[Deephold]]** network. Travel through the tunnel requires both navigation skill and silence, as sound carries far through its stone corridors.
+
+The Underline remains the backbone of the Shogunate’s underground routes, linking the major continents of the Confederacy through a path that no surface map records.

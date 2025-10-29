@@ -1,0 +1,9 @@
+**Kingswood Empire** is a city built around the **[[Kingwood Tree]]** in the northern basin of the **[[Godswood Triumvirate]]**. The ground rises in wide terraces that circle the tree, with each level connected by sloped paths and iron bridges. The soil is rich in iron and magnetic stone, and fine dust hangs constantly in the air, giving the city a dull red haze.
+
+The tree stands at the city’s center, its roots spreading for miles beneath the surface. Its bark is gray-black streaked with rust, and it produces heavy iron apples that fall without warning. Many of the impact craters have been filled with resin or water and are used as forges, gathering pools, or markets. The vibration from the falling fruit can be felt throughout the lower terraces, shaking loose flakes of iron from the surrounding walls.
+
+The lower districts are carved directly into the Kingwood’s roots. Resin seeps from the walls, hardening into smooth amber surfaces that glow faintly under the canopy. These areas contain sealed chambers known as the **Amber Vaults**, where preserved figures rest within the hardened resin. Above them, the streets are paved with compacted dust and reinforced with metal plates to prevent collapse.
+
+Streams of metallic runoff flow between the terraces, carrying a reddish sheen that reflects the faint light of the fungus growing along the roots. The air is warm and still, and the smell of sap and iron lingers throughout the city. The outer terraces fade into the surrounding forest, where moss and fungus cover the stone, marking the border between the city and the wild.
+
+The **Kingswood Empire** remains one of the largest continuous settlements in the Shogunate of History, its structure formed entirely around the presence of the Kingwood Tree. The city’s roads, bridges, and terraces all lead back toward the trunk, where the oldest roots meet the center of the basin.

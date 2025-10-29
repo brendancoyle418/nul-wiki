@@ -1,0 +1,7 @@
+**Pinewood Expanse** covers the northwest of the **[[Shogunate of History]]**, lying between the inner sea and the forest borders of the **[[Kingswood Empire]]**. The region is made of dense pine forest, rolling hills, and deep resin valleys. The ground is uneven and soft, layered with needles, moss, and amber deposits that glint faintly beneath the surface. The air is damp and cool, carrying the scent of pine and fungus.
+
+Villages are spread far apart across the forest. Most are built on high ridges or beside slow-moving resin streams. The people harvest amber from the soil and from fallen trees, shaping it into tribute for the **[[Godswood Triumvirate]]**. These offerings are sent south to the **[[Kingswood Empire]]**, **[[Queenswood Dominion]]**, and **[[Jackswood Republic]]**, carried along narrow paths known as the Resin Roads. The trails are marked by glowing fungus that outlines their edges and guides travelers through the dark.
+
+The terrain rises and dips sharply, cut by streams and old resin flows that have hardened over time. Some areas are marked by clear amber sheets covering the forest floor, trapping pine needles and branches inside. In the lower regions, pools of soft resin still form after heavy rain, glowing faintly beneath the trees.
+
+The **Pinewood Expanse** is quiet and dim, sealed beneath its heavy canopy. It stands apart from the surrounding lands, its only connection to the wider world through the resin paths that lead south toward the roots of the **[[Acewood Tree]]**.

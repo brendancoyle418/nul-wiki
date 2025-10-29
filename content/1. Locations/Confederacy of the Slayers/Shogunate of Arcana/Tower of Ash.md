@@ -1,0 +1,7 @@
+The **Tower of Ash** is located in the southwestern frontier of the **[[Shogunate of Arcana]]**, near the volcanic borderlands that separate it from **[[The Reach]]**. The tower rises from a plain of black glass and hardened slag, surrounded by fissures that release thin streams of smoke and glowing embers. The air is dry, brittle, and carries a constant scent of sulfur.
+
+The structure itself is made of fused volcanic rock, dark gray with streaks of red glass that pulse faintly in the dark. The ground around it is layered with ash that drifts like snow, settling into dunes that shift with every tremor. Lightning sometimes strikes the tower’s peak, discharging through the ash fields in branching streaks that light the entire region for several seconds.
+
+No vegetation grows within sight of the tower, and sound travels poorly across the vitrified surface. Researchers believe the Tower of Ash regulates the psionic resonance that radiates from the nearby mountains, dampening violent magnetic fluctuations that could destabilize the **[[Mass Mind]]**. The area is largely uninhabited aside from scattered relay stations built into cooled lava tunnels.
+
+Despite its isolation, the tower remains active within the psionic network, transmitting low-frequency pulses that can be detected across the western half of the continent. Its steady vibration is referred to by technicians as the “heartbeat of Arcana.”

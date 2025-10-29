@@ -1,0 +1,5 @@
+**Giantsthrone** is a vast plateau in the northern **[[Reach]]**, rising high above the surrounding volcanic plains. The land is barren and carved from dark basalt, its surface covered in enormous stone markings that stretch for miles. Each carving forms part of a circular pattern visible only from the sky, believed to be the remains of ancient giant rituals or territorial symbols.
+
+The region serves as the last sanctuary of the giants who survived the war with the dragons. Massive ruins of their halls stand half-buried in ash, supported by pillars of fused rock thicker than castle towers. The storms that pass over the plateau gather along magnetic ridges, striking the same points repeatedly and lighting the carvings with brief flashes of blue fire.
+
+Despite its desolation, Giantsthrone remains a place of pilgrimage for those who study the old world. The air carries constant vibration from distant thunder, and the ground resonates faintly, as if the mountain itself still remembers the giants’ footsteps.

@@ -1,0 +1,7 @@
+The **Tower of Sand** stands in the western interior of the **[[Shogunate of Arcana]]**, where the volcanic cliffs of **[[The Reach]]** fade into wide basins of golden dunes. The ground is restless and always shifting, shaped by magnetic wind that pushes the sand into spirals. The air carries a constant shimmer from static discharge, and the dunes give off a faint hum when the wind rises.
+
+The tower stands in the center of this basin, half-buried in fused layers of sand and glass. The glass was formed by centuries of lightning and heat, and now stretches outward from the tower in sheets that catch the faint light of the **[[Catalytic Spheres]]**. The tower’s surface is made of hardened sandstone mixed with reflective mineral veins that glow when psionic current flows through the **[[Mass Mind]]**.
+
+When active, the tower emits a steady vibration that rolls through the desert in regular waves. These pulses set the rhythm for psionic synchronization across Arcana, earning it the title of the metronome of the continent. Each pulse makes the surrounding dunes tremble, briefly turning them into a mirrored sea before the sand settles again.
+
+Magnetic storms are common, and when they strike, the tower releases arcs of red light that melt the sand into new glass formations. The desert is empty of permanent life, but travelers navigate by the glow of the glass plains and the deep rhythm beneath their feet. The **Tower of Sand** marks both time and direction in a landscape that is never still.

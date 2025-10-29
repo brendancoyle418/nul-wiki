@@ -1,0 +1,5 @@
+**Gnometown** is the only permanent settlement within **[[The Gloam]]**, built inside the trunks and stems of massive bioluminescent mushrooms. The city’s structure follows the natural growth of the fungi, with winding tunnels, bridges, and hollowed chambers forming stacked districts. The walls glow faintly, and the air is heavy with drifting spores that cling to everything they touch.
+
+The settlement was founded by gnomes who chose to live away from the surface, adapting to the Gloam’s constant humidity and low light. Over time, they learned to shape the fungus into usable forms, hardening walls through heat and alchemy. Most structures are alive, slowly growing or shrinking depending on the season.
+
+Parts of Gnometown are unstable, with old tunnels sometimes sealed by overgrowth or new chambers forming overnight. The spores dull memory, and visitors often lose track of direction or time. Even so, it remains a stable foothold for mortals in the Gloam, used for trade, research, and supply before venturing deeper into the continent.

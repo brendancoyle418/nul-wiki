@@ -1,0 +1,7 @@
+The **Tower of Dust** stands along the northwestern rim of the **[[Shogunate of Arcana]]**, where the terrain breaks into fractured ridges and drifting plains of powdered stone. The landscape is colorless and dry, marked by dunes that move with each passing wind. The air hums faintly from static charge, and every surface carries a thin layer of dust that never settles completely.
+
+The tower itself is embedded within a ridge of magnetic ore, its lower half half-swallowed by centuries of erosion. The outer structure is coarse and uneven, built from layered sediment that sheds a constant trickle of gray powder. During storms, the tower trembles with low vibrations, and dust lifts from the ground in spiraling columns that twist around its base.
+
+No permanent settlements exist nearby. The air is too thin, and the dust carries a dull electrical taste that corrodes exposed metal. Relay outposts anchor deep into the rock, monitoring the tower’s magnetic field for shifts across the **[[Mass Mind]]**. Its pulses travel north and east, synchronizing the psionic frequencies of the other towers.
+
+The **Tower of Dust** is known as the continent’s metronome, its rhythm steady even during violent storms. Each pulse echoes through the magnetic plains and fades into silence. When the wind stops, the tower’s hum is the only sound that remains.

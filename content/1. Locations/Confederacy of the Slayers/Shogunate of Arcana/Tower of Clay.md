@@ -1,0 +1,9 @@
+The **Tower of Clay** stands in the central basin of the **[[Shogunate of Arcana]]**, surrounded by plains of pale dust and soft, shifting ground. The terrain changes slowly over time, cracking and smoothing in rhythmic patterns as if moved by unseen tides. At its center, the tower rises from a wide ring of hardened earth, the surface glazed and glassy from heat and compression.
+
+The tower’s structure resembles sculpted ceramic, smooth and seamless from base to peak. Its color shifts subtly with the light, from ochre to deep red, and the surface carries faint lines where it appears to have reshaped itself. When psionic current moves through the **[[Mass Mind]]**, these lines glow with dull orange light, spreading in concentric ripples across the tower’s shell.
+
+The air around the Tower of Clay is still and warm, heavy with mineral scent. Thin sheets of dried mud peel from the ground, curling like parchment. When rain falls, the land liquefies, creating reflective pools that mirror the tower’s distorted image for hours before evaporating.
+
+Functionally, the tower serves as one of Arcana’s primary stabilizers, absorbing psionic interference from the surrounding network and converting it into low-frequency vibrations that dissipate through the crust. The area is often used as a calibration site for **[[Mass Mind]]** maintenance, since the tower’s structure reacts predictably to signal distortion.
+
+Settlements near the basin use locally harvested clay for construction. When shaped and fired, the material retains a faint hum, proof that the entire region resonates with the tower’s constant, subtle energy.

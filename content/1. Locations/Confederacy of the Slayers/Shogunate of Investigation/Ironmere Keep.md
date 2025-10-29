@@ -1,0 +1,9 @@
+**Ironmere Keep** is a subterranean fortress located beneath the ocean floor near the western edge of the **Inner Ocean**, positioned between the continental boundaries of **[[Arcana]]**, **[[Religion]]**, and **[[History]]**. It serves as the central meeting ground of the **[[Confederacy of the Slayers]]**, maintained and secured by the **[[Shogunate of Investigation]]**.
+
+The structure is buried within a cavern of fused basalt and iron, its walls reinforced by layered plating that resists both pressure and psionic interference. Access is gained through vertical shafts that descend from the surface and through sealed tunnels connecting to the undersea routes of the Investigation network. The air inside is still and metallic, and the only light comes from mineral veins that glow faintly in the rock.
+
+The upper halls of Ironmere Keep form a circular council chamber surrounded by smaller meeting rooms, each acoustically isolated and lined with resin and steel. Every sound within the walls is absorbed by the stone, and no magic or signal can penetrate the keep’s interior.
+
+Below the council floors are maintenance chambers, pressure locks, and the primary anchor tunnel that links the keep to the rest of the subterranean network. Most of these levels remain sealed except during Confederacy gatherings.
+
+Ironmere Keep is the most heavily protected site in the Mortal Plane. No single shogunate claims ownership, and entry is restricted to official delegates and maintenance crews. Its walls have never been breached, and it remains the one place where the leaders of the Confederacy can meet without outside interference.

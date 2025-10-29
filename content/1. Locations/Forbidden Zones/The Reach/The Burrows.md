@@ -1,0 +1,5 @@
+**The Burrows** stretch beneath the southern **[[Reach]]**, forming a vast maze of tunnels, vents, and hollowed caverns that descend toward the rim of the **[[Abyss]]**. The air is hot and metallic, filled with the hiss of steam and the faint echo of shifting stone. Walls of fused glass and iron ore reflect dim red light from the magma below, giving the tunnels a constant glow.
+
+The kobolds of the Reach make their homes here, building layered colonies that cling to the rock like nests. Their passageways twist and overlap, marked by carved sigils that warn of traps or unstable ground. Many of the deeper tunnels connect to ancient draconic shafts from **[[Draconia]]**, which the kobolds have repurposed into foundries, mines, and hatcheries.
+
+The Burrows serve as both refuge and workshop, producing tools, weapons, and relics from the minerals drawn out of the molten crust. Collapses are frequent, and the paths shift constantly as the earth moves, yet the kobolds thrive in the danger. It is said that no two tunnels in the Burrows stay the same shape for long, and even the kobolds themselves sometimes vanish into newly formed depths without warning.

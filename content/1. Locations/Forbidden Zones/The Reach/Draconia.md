@@ -1,0 +1,5 @@
+**Draconia** is an ancient dragon sanctuary located in the heart of the southern **[[Reach]]**, built within a ring of volcanic mountains that surround a glowing inner basin. The land is made of black stone and glass, shaped long ago by dragonfire into smooth ridges and hollow peaks. Heat still rises from cracks in the ground, and the air carries the faint scent of metal and ash.
+
+The sanctuary was founded long before the **[[Sealing]]**, when dragons ruled the southern Reach and fought a long war against the giants to the north. Its central basin once served as a meeting ground for the great flights, marked by massive spires of fused stone. During the final battles, the eruption of the central volcano split the region apart, creating rivers of molten glass that still flow beneath the surface.
+
+Most of Draconia is now buried in hardened slag, but deep caverns remain. Some contain fossilized wings and scales trapped in obsidian, while others hold molten pools that glow with a dull red light. Few who enter survive for long, yet many believe ancient dragons still sleep beneath the crust, waiting for the heat to rise again.

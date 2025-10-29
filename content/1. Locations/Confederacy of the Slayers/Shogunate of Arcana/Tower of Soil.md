@@ -1,0 +1,7 @@
+The **Tower of Soil** stands near the center of the **[[Shogunate of Arcana]]**, surrounded by dense fungal plains and moss-covered ridges. The ground is dark and damp, filled with burrows and shallow root tunnels where bioluminescent spores glow beneath the surface. The air is heavy with humidity and carries the scent of mineral decay.
+
+The tower itself is partially buried, its lower half obscured by layers of soil and vegetation. The surface is rough and porous, covered in moss and lichen that pulse faintly with psionic light. Vines climb the structure in twisting patterns, forming living circuits that draw energy from the surrounding terrain. The soil here is unusually fertile, feeding colonies of mushrooms that spread outward in concentric circles around the tower.
+
+Occasional tremors ripple through the ground, and the tower responds with low-frequency vibrations that can be felt for miles. These pulses are interpreted as part of its stabilizing function within the **[[Mass Mind]]**, regulating excess signal buildup between the more volatile towers of Dust and Sulphur. The energy passing through the tower seems to stimulate plant growth, creating a continuous cycle of decay and renewal in the area.
+
+Travelers often describe the region as unnervingly alive. The ground shifts softly underfoot, and faint whispers echo from the tunnels during psionic storms. The **Tower of Soil** is seen as the most organic of Arcana’s monuments, linking the mineral and fungal halves of the continent into a single, living network.
